@@ -1,0 +1,1 @@
+# trocafigurinha2026-legal
